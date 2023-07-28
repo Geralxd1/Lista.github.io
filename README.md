@@ -1,2 +1,1 @@
-# Lista.github.io
-Proyecto lista de tareas
+Por: Geraldy Brenda Cutipa Incacutipa
